@@ -1,3 +1,3 @@
-Aadithyan Rajesh R<br>
+Aadhithyan Rajesh R<br>
 Aiswarya S<br>
 Asif C A
